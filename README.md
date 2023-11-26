@@ -1,0 +1,2 @@
+# DISENY
+HACK MODE
